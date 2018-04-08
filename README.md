@@ -6,7 +6,7 @@
 
 2)https://github.com/mashashin8/HW6/blob/master/2.jpg
 
-3)https://github.com/mashashin8/HW6/blob/master/2.jpg
+3)https://github.com/mashashin8/HW6/blob/master/3.jpg
 
 
 ## Часть 2
